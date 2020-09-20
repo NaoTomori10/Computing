@@ -1,3 +1,6 @@
+REI-LYN POV:
+
+
 I let out a sigh as I moved on to my next doodle, flipping to an empty space on my worksheet and drawing yet another turtle. My calligraphy and small sketches had already filled almost the whole page in the short time that I have been dying in this classroom, listening to the teacher's voice drone on and on. 
 "Okay, class, please take out your phones." 
 My ears perked up at those words almost instantly. My heart started beating a little faster. I whipped out my phone quickly, entering Whatsapp to check the picture the teacher sent. While that, I was watching at the corner of my eye, the movements of the person next to me. 
