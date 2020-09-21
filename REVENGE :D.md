@@ -85,6 +85,6 @@ Wow.
 
 "I like you too." I finally manage. He froze in his tracks. 
 
-I could not resist it anymore. I ran up behind him and threw my arms aroudn him, resulting in a awkward yet sweet hug. 
+I could not resist it anymore. I ran up behind him and threw my arms around him, resulting in a awkward yet sweet hug. 
 
 He tried to move, but i stopped him, "Let's just stay in this position for a while more, please." I say, before resting my head on his shoulder and closing my eyes.
