@@ -39,13 +39,15 @@ She looked so uncomfortable just now. Was it her being uncomfortable or...? No. 
 
 I threw an annoyed look as my friends yelled out, "SIMP." (Not cool, don't say that)
 
-Should I really confess though? Or not? Does she like me back? 
+Should I really confess though? Or not? Does she like me back? Ah, I don't know anymore.
 
 REI-LYN POV:
 
 Do I really like him? Don't I just like him as a friend? I... 
 
-You know what. I'm just gonna watch Netflix. 
+You know what. I'm just gonna watch Netflix. I can worry about other things later.
+
+I picked up the remote control and watched my favourite anime to get thoughts of Rhys out of my head. 
 
 
 
