@@ -41,6 +41,16 @@ I threw an annoyed look as my friends yelled out, "SIMP." (Not cool, don't say t
 
 Should I really confess though? Or not? Does she like me back? 
 
+I turned my head to catch a glimspe of Rei-Lyn again. Her cute ponytail, her rosy cheeks, her sweet, bright smile - she really was very pretty.
+
+Arghh noo I'm too young for this relationship business. Focusing on my studies is top priority.
+
+I looked at her again. The way she laughed made me smile. She's soo adorable.
+
+Ughh now I'm sure I do have feelings for her but... it could just be a stupid crush, that's all. But the way my heart does a thousand flips when I see her, the way every word she says turns into music, the way her smile seems to make all my worries go away...
+
+Should I tell her? I really want to just blurt out my feelings right now. She'll probably think I'm a freak though haha...
+
 REI-LYN POV:
 
 Do I really like him? Don't I just like him as a friend? I... 
