@@ -72,3 +72,19 @@ Finally, I saw a figure rushing towards me.
 
 "sorry, I was held back." He says, panting. 
 
+"so... what's up?"I asked. 
+
+"oh, uhm.." He says, shoulders suddenly stiffening. He shifted his weight from one foot to another before blurting out, "I like you. Okay?" 
+
+I felt like time just froze. 
+
+Wow.
+
+"I..." i looked at his expectant eyes, then looked away quickly. I stood there awkwardly. He slowly began to walk away.
+
+
+"I like you too." I finally manage. He froze in his tracks. 
+
+I could not resist it anymore. I ran up behind him and threw my arms aroudn him, resulting in a awkward yet sweet hug. 
+
+He tried to move, but i stopped him, "Let's just stay in this position for a while more, please." I say, before resting my head on his shoulder and closing my eyes.
