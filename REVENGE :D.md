@@ -59,5 +59,16 @@ You know what. I'm just gonna watch Netflix. I can worry about other things late
 
 I picked up the remote control and watched my favourite anime to get thoughts of Rhys out of my head. 
 
+NEXT DAY
 
+REI-LYN POV:
+For some reason, I received a text from Rhys today. The text just said, "After school." And the location. Apparently he wanted to meet at the back of the school. Could it be..? No. He would never like me. I didn't tell anyone about the text. After all, he probably wouldn't want me to, and my friends would likely go insane (of happiness). 
+
+When we were released, I excused myself, saying that I had to do some after school activity today. I walked alone to the back of the school. 
+
+I waited for a few minutes. No one came. Was this a prank or..? My eyes scanned my surroundings. 
+
+Finally, I saw a figure rushing towards me. 
+
+"sorry, I was held back." He says, panting. 
 
